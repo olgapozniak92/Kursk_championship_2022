@@ -1,0 +1,1 @@
+# Kursk_championship_2022
